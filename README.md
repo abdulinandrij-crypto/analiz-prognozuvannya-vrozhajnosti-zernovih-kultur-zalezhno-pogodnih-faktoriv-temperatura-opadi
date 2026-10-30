@@ -1,0 +1,1 @@
+# analiz-prognozuvannya-vrozhajnosti-zernovih-kultur-zalezhno-pogodnih-faktoriv-temperatura-opadi
